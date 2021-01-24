@@ -11,7 +11,11 @@ https://docs.google.com/document/d/1WwcvOiECp9LXwNDUmfCKLnoYJBOaoxd-LfYWsMb719k/
 
 ## 最終発表用スライド資料  
 
+https://docs.google.com/presentation/d/1MObkg63OP4csQeUC2AqBZ0xYGW4GVEfWMyaXRWt9jbE/edit?usp=sharing  
 
+## Youtube 再生リスト　「ドローンを使ったPV」アップデートバージョン
+
+https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj　
 
 # 2020年度ゼミ論本文  
 
