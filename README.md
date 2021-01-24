@@ -52,6 +52,8 @@ https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj　
 
 　参考文献リスト
 
+https://docs.google.com/spreadsheets/d/1GcASynfJRib4K2OvTPapTiCnxa08gk1zj6JDNizRUS8/edit?usp=sharing　
+
 ## 謝辞  
 
 　本研究を進めるにあたり古橋大地教授をはじめ多くの方々より多大な助言を賜りました。厚く感謝を申し上げます。
