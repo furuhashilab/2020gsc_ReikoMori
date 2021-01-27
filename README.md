@@ -15,7 +15,7 @@ https://docs.google.com/presentation/d/1MObkg63OP4csQeUC2AqBZ0xYGW4GVEfWMyaXRWt9
 
 ## Youtube 再生リスト　「ドローンを使ったPV」アップデートバージョン
 
-https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj　
+https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj 　
 
 # 2020年度ゼミ論本文  
 
