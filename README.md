@@ -13,9 +13,17 @@ https://docs.google.com/document/d/1WwcvOiECp9LXwNDUmfCKLnoYJBOaoxd-LfYWsMb719k/
 
 https://docs.google.com/presentation/d/1MObkg63OP4csQeUC2AqBZ0xYGW4GVEfWMyaXRWt9jbE/edit?usp=sharing  
 
+## 進捗管理用プロジェクト
+
+https://github.com/furuhashilab/sotsuron2020/projects/5　
+
 ## Youtube 再生リスト　「ドローンを使ったPV」アップデートバージョン
 
 https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj 　
+
+## ドローンによるPVリスト
+
+https://docs.google.com/spreadsheets/d/1TpXwmU7LOI-npdzPSTJDCEhnCLCVTP97CXMpKIOjNvM/edit#gid=0　
 
 # 2020年度ゼミ論本文  
 
