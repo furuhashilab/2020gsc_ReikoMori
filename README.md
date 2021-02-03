@@ -42,6 +42,8 @@ https://docs.google.com/spreadsheets/d/1TpXwmU7LOI-npdzPSTJDCEhnCLCVTP97CXMpKIOj
 
 ![image](https://user-images.githubusercontent.com/30142882/106377213-f210aa00-63de-11eb-9cd3-ce3cc2dfa428.png)
 
+![image](https://user-images.githubusercontent.com/30142882/106271312-a50fc500-6272-11eb-85d0-7206cd93e994.png)
+
 ## Results  
 
 　１．新たな撮影手法について  
