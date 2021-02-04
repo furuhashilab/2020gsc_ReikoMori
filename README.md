@@ -17,6 +17,10 @@ https://docs.google.com/presentation/d/1MObkg63OP4csQeUC2AqBZ0xYGW4GVEfWMyaXRWt9
 
 https://github.com/furuhashilab/sotsuron2020/projects/5　
 
+## 撮影手法チートシート
+
+https://drive.google.com/drive/u/0/folders/1wwJ4bPtR5t3gRoBk6L9BvCR5_qV7IKzo  
+
 ## Youtube 再生リスト　「ドローンを使ったPV」アップデートバージョン
 
 https://www.youtube.com/playlist?list=PLIn6myZbpT5cQq9v4-sHDito6O2FK9RUj 　
