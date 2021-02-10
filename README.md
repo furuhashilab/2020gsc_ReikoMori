@@ -11,7 +11,7 @@ https://docs.google.com/document/d/1WwcvOiECp9LXwNDUmfCKLnoYJBOaoxd-LfYWsMb719k/
 
 ## 最終発表用スライド資料  
 
-https://docs.google.com/presentation/d/1MObkg63OP4csQeUC2AqBZ0xYGW4GVEfWMyaXRWt9jbE/edit?usp=sharing  
+https://docs.google.com/presentation/d/1DYbs8vlmpzI5hSzg5fTFkOthEQ9N_1yVW4TwQUbg-bA/edit?usp=sharing  
 
 ## 進捗管理用プロジェクト
 
